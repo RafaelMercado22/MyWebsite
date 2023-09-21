@@ -1,2 +1,2 @@
 # MyWebsite
-theme: minima
+remote_theme: Midnight
