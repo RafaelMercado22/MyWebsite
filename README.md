@@ -11,7 +11,7 @@ Many smurf memes have circulated throughout the internet, such as the dancing sm
 
 These smurf memes became popular in social media, because of the emotions that their short clips express as well as the funny captions some meme makers added to the video.
 
-For example, ![smurfs-dance.gif]([https://static.wikia.nocookie.net/meme/images/6/62/Smurfcat.png/revision/latest?cb=20230913155257](https://media.tenor.com/tgEQE5rmRXUAAAAd/smurfs-dance-party-smurf-dance.gif))
+For example, ![smurfs-dance.gif](https://media.tenor.com/tgEQE5rmRXUAAAAd/smurfs-dance-party-smurf-dance.gif)
 
 ### Our Trending Meme, Smurf Cat
 The Smurf Cat is a meme that has recently became popular in the ending months of summer (August-September of 2023)
