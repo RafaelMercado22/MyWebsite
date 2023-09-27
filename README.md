@@ -1,5 +1,6 @@
 # What is the "Smurf Cat" Meme?
 ![Smurfcat.webp](https://static.wikia.nocookie.net/meme/images/6/62/Smurfcat.png/revision/latest?cb=20230913155257)
+
 If you have been on the interent recently and are a freuqent social media or meme viewer, you might be familiar with this image.
 The pictures 
 ## Rise to fame
