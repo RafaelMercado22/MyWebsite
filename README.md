@@ -1,7 +1,7 @@
 # What are Smurf Memes and what is the "Smurf Cat" Meme?
 ![Smurf Car.jpg](https://i.pinimg.com/originals/c9/24/52/c9245217c9c2528c77909305e4b893de.jpg)
 
-If you have been on the internet recently and are a freuqent social media or meme viewer, you might be familiar with this image.
+If you have been on the internet recently and are a frequent social media or meme viewer, you might be familiar with this image.
 
 The picture comes across as a weird creature, and it certainly is. The idea of it is a mixture of the cartoon smurf and a cat. 
 ## Backstory and Fame
