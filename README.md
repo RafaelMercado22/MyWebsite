@@ -52,11 +52,11 @@ The Smurf Cat is a meme that has recently became popular in the ending months of
 
   -If you are a frequent user of social media such as Instagram, many reel/posts currently (9/26/23) containing videos such as this one
 
-Smurf Cat Meme [Youtube Link](https://www.youtube.com/watch?v=HSt0ZMl4TVQ)
+[Smurf Cat Meme](https://www.youtube.com/watch?v=HSt0ZMl4TVQ) (Video Link)
 
 The idea of the meme is to highlight the smurf cat's existence in nature, circling spots on the Earth, then on forests/nature, until it "zooms" in close enough to view the smurf cat in it's natural habitat.
 
-The meme is paired with the song The Spectre [Youtube Link](https://www.youtube.com/watch?v=HSt0ZMl4TVQ) by Alan Walker (Don't get it mixed up with "Spectre", Alan's intsrumental version and inspiration for this song), the lyrics go contained in the meme goes,"It all belongs to the other side, we live, we love, we lie."
+The meme is paired with the song [The Spectre](https://www.youtube.com/watch?v=HSt0ZMl4TVQ) (Song Link) by Alan Walker (Don't get it mixed up with "Spectre", Alan's intsrumental version and inspiration for this song), the lyrics go contained in the meme goes,"It all belongs to the other side, we live, we love, we lie."
 
 Looking deeper into the song choice, it might entail that on the other side of nature belongs various creatures such as the Smurf Cat depicted.
 
