@@ -25,7 +25,7 @@ This dancing smurf meme was popular in 2022, there were many variations because 
 
 But the most popular version included papa smurf and the smurf dancing while the sped up lyrics of a song which went like, "You got me jumpin like, boom shakalaka boom shakalaka" played.
 
-Here is an example [example link](https://www.youtube.com/watch?v=pm6LW_KlJvY). (link to the video)
+Here is an example [Smurfs dancing](https://www.youtube.com/watch?v=pm6LW_KlJvY). (link to the video)
 
 Here is the other smurf meme mentioned:
 
@@ -43,7 +43,7 @@ This smurf meme was popular around the end of 2022 (November-December) the time 
 
 It clip originates from the Smurfs 2 movie, detailing the moment where Smurfette turns evil.
 
-Here is the original clip [example link](https://www.youtube.com/watch?v=y8ScJQgKEiM). (from the Smurfs 2 movie)
+Here is the original clip [Smurfette turn evil](https://www.youtube.com/watch?v=y8ScJQgKEiM). (from the Smurfs 2 movie)
 
 ### The Trending Meme, Smurf Cat
 The Smurf Cat is a meme that has recently became popular in the ending months of summer (August-September of 2023)
