@@ -1,5 +1,5 @@
 # What are Smurf Memes and what is the "Smurf Cat" Meme?
-![Screenshot 2023-09-27 190935.png]
+![Smurf Car.jpg]
 
 If you have been on the interent recently and are a freuqent social media or meme viewer, you might be familiar with this image.
 
