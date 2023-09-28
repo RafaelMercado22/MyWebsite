@@ -47,10 +47,17 @@ Here is the original clip [Smurfette turn evil](https://www.youtube.com/watch?v=
 
 ### The Trending Meme, Smurf Cat
 The Smurf Cat is a meme that has recently became popular in the ending months of summer (August-September of 2023)
-+ If you are a frequent user of social media such as Instagram, many reel/posts currently (9/26/23) containing videos such as this one
 
+  -If you are a frequent user of social media such as Instagram, many reel/posts currently (9/26/23) containing videos such as this one
 
+![smurf cat meme]([YouTube link](https://www.youtube.com/watch?v=HSt0ZMl4TVQ)
 
+The idea of the meme is to highlight the smurf cat's existence in nature, circling spots on the Earth, then on forests/nature, until it "zooms" in close enough to view the smurf cat in it's natural habitat.
 
+The meme is paired with the song ![The Spectre]([YouTube link](https://www.youtube.com/watch?v=HSt0ZMl4TVQ) by Alan Walker (Don't get it mixed up with "Spectre", Alan's intsrumental version and inspiration for this song), the lyrics go contained in the meme goes,"It all belongs to the other side, we live, we love, we lie."
 
-This is an [example link](http://example.com/ "With a Title"). (this will be the link to the song)
+Looking deeper into the song choice, it might entail that on the other side of nature belongs various creatures such as the Smurf Cat depicted.
+
+Anyways, I hope that this website has well informed you about the history of smurf memes and the current smurf meme popular today.
+
+God willing you all leave today with a better understanding of smurf memes as well as newfound appreciation for them too. Thanks for reading.
