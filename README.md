@@ -11,7 +11,7 @@ Many smurf memes have circulated throughout the internet, such as the dancing sm
 
 These smurf memes became popular in social media, because of the emotions that their short clips express as well as the funny captions some meme makers added to the video. 
 
-__For example, __
+__For example,__
 
 Here are some captions to match the gif
 
