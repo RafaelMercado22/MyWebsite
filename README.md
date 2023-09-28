@@ -27,7 +27,7 @@ But the most popular version included papa smurf and the smurf dancing while the
 
 Here is an example [Smurfs dancing](https://www.youtube.com/watch?v=pm6LW_KlJvY). (link to the video)
 
-Here is the other smurf meme mentioned:
+__Here is the other smurf meme mentioned:__
 
 The captions for this one are
 
