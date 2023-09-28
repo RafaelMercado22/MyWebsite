@@ -11,9 +11,16 @@ Many smurf memes have circulated throughout the internet, such as the dancing sm
 
 These smurf memes became popular in social media, because of the emotions that their short clips express as well as the funny captions some meme makers added to the video. For example, 
 
+Here are some captions to match the gif
+  -"When my Filipino mother makes me dance at my tita's wedding"
+  -"Finally getting a dub in Fortnite and emoting after 100000000 consecutive losses (without going to the bathroom)"
+  -"Dancing because I finished my test, even though my grade dropped to a C-"
+
 ![smurfs-dance.gif](https://media.tenor.com/tgEQE5rmRXUAAAAd/smurfs-dance-party-smurf-dance.gif)
 
-### Our Trending Meme, Smurf Cat
+
+
+### The Trending Meme, Smurf Cat
 The Smurf Cat is a meme that has recently became popular in the ending months of summer (August-September of 2023)
 + If you are a frequent user of social media such as Instagram, many reel/posts currently (9/26/23) containing videos such as this one
 
