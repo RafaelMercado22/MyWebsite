@@ -21,7 +21,29 @@ Here are some captions to match the gif
 
 ![smurfs-dance.gif](https://media.tenor.com/tgEQE5rmRXUAAAAd/smurfs-dance-party-smurf-dance.gif)
 
+This dancing smurf meme was popular in 2022, there were many variations because it originated from a Wii "Just Dance" game.
 
+But the most popular version included papa smurf and the smurf dancing while the sped up lyrics of a song which went like, "You got me jumpin like, boom shakalaka boom shakalaka" played.
+
+Here is an example [example link](https://www.youtube.com/watch?v=pm6LW_KlJvY). (link to the video)
+
+Here is the other smurf meme mentioned:
+
+The captions for this one are
+
+  -"My normal friend coming back from school then hopping on Valorant and becoming toxic"
+
+  -"My dog when it sees an opening to get peanut butter"
+
+  -"Little girls after watching Wednesday Addams"
+  
+![smurfs-naughty.gif](https://media.tenor.com/XdvrmowLhyEAAAAd/smurfs-naughty.gif)
+
+This smurf meme was popular around the end of 2022 (November-December) the time in which Wednesday Addams newly released. It was commonly used with the last caption in response to all the videos of little girls immitating Wednesday. 
+
+It clip originates from the Smurfs 2 movie, detailing the moment where Smurfette turns evil.
+
+Here is the original clip [example link](https://www.youtube.com/watch?v=y8ScJQgKEiM). (from the Smurfs 2 movie)
 
 ### The Trending Meme, Smurf Cat
 The Smurf Cat is a meme that has recently became popular in the ending months of summer (August-September of 2023)
