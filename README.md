@@ -41,7 +41,7 @@ The captions for this one are
   
 ![smurfs-naughty.gif](https://media.tenor.com/XdvrmowLhyEAAAAd/smurfs-naughty.gif)
 
-This smurf meme was popular around the end of 2022 (November-December) the time in which Wednesday Addams newly released. It was commonly used with the last caption in response to all the videos of little girls immitating Wednesday. 
+This smurf meme was popular around the end of 2022 (November-December) the time in which Wednesday Addams newly released. It was commonly used with the last caption in response to all the videos of little girls imitating Wednesday. 
 
 It clip originates from the Smurfs 2 movie, detailing the moment where Smurfette turns evil.
 
